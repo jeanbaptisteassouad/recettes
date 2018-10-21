@@ -23,3 +23,5 @@ Mélanger 150 g de la farine avec le sucre, la levure chimique, le bicarbonate e
 6. Graisser le fond d'une moule à cake, et y verser la pâte.
 7. Faire cuire au four à 165°C pendent 55 à 60 min (vérifier la cuisson).
 8. Peut être glacé avec un glaçage à base de fromage blanc ou de crème fraîche.
+
+[source](https://www.marmiton.org/recettes/recette_cake-a-la-banane-banana-bread-usa_12042.aspx)
