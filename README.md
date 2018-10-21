@@ -1,5 +1,3 @@
-## Welcome to GitHub Pages
-
 # Cake à la banane / banana bread (USA)
 
 ## Ingrédients
